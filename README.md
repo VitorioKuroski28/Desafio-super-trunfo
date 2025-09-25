@@ -1,0 +1,1 @@
+jogo de caRTAS SUPER TRUNFO
