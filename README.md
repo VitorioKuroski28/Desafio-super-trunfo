@@ -1,1 +1,1 @@
-jogo de CARTAS DESAFIO SUPER TRUNFO
+trabalho escolar jogo de CARTAS DESAFIO SUPER TRUNFO em CC+
